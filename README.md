@@ -1,4 +1,4 @@
-# Trust Reviews ✔️⭐ / Arts & Entertainment 🎨🎭
+# Trust Reviews / Arts & Entertainment 🎨🎭
 
 Welcome to the **Arts & Entertainment** repository! This space is dedicated to providing in-depth and insightful reviews of products related to the arts and entertainment industry. From books and music to movies and online courses, our reviews aim to help you discover and enjoy the best in creative content.
 
