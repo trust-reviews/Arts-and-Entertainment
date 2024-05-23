@@ -42,7 +42,7 @@ This project is licensed under the MIT License. See the [LICENSE](LICENSE) file 
 
 ---
 
-### SEO Keywords:
+### TAGS:
 
 - Arts and Entertainment Reviews
 - Book Reviews
